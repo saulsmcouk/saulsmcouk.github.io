@@ -10,8 +10,10 @@ Loss Prevention Intern at Amazon (Summer 22)
 (Former) Clare Garden Party Co-President.
 
 (Former) [UCS IT Officer](https://ucs.clare.cam.ac.uk/).
----
+
 Student Rep on the German Section Student-Staff Liaison Cmte in MML 2020-22
+
+---
 
 I use he/him pronouns, btw.
 
