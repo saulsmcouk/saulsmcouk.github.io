@@ -1,13 +1,10 @@
-# Saul **Samuels Moselle**
-
+Hi, I'm Saul (/sɔːl/) **Samuels Moselle**. (NB: My surname is double-barreled and does not contain a hyphen!) 
 
 Undergraduate (🇩🇪🇪🇸) student in [MMLL](https://www.mmll.cam.ac.uk/), into linguistics. 
-
 
 English Language Assistant in Vienna (22/3)
 
 Loss Prevention Intern at Amazon (Summer 22) 
-
 
 ---
 (Former) Clare Garden Party Co-President.
