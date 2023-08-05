@@ -2,6 +2,8 @@ Hi, I'm Saul (/sɔːl/) **Samuels Moselle**. (NB: My surname is double-barreled 
 
 Undergraduate (🇩🇪🇪🇸) student in [MMLL](https://www.mmll.cam.ac.uk/), into linguistics. 
 
+Consulting Intern at GEP (Summer 23)
+
 English Language Assistant in Vienna (22/3)
 
 Loss Prevention Intern at Amazon (Summer 22) 
