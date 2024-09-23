@@ -5,3 +5,5 @@ I'm a future trainee solicitor at [Herbert Smith Freehills](https://www.herberts
 Before that I was an undergraduate at Cambridge, where I did MML with a focus on linguistics, including an interest in computational linguistics and NLP. 
 
 You can find me on LinkedIn [here](https://www.linkedin.com/in/saul-samuels-moselle/). 
+
+If you're having a look at the projects in my repos, note that they are quite old and mostly done at hackathons or for fun.
