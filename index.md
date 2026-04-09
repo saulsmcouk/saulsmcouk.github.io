@@ -1,3 +1,7 @@
+---
+layout: default
+---
+
 Hi, I'm Saul (/sɔːl/) **Samuels Moselle**. (NB: My surname is double-barreled and does not contain a hyphen!) 
 
 I'm a future trainee solicitor at [Herbert Smith Freehills Kramer](https://www.herbertsmithfreehills.com/), due to start in September 2026. 
